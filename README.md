@@ -1,5 +1,5 @@
 - 👋 Oi, meu nome é Maurício F. Santos
-- 👀 Meus interesses são desenhar, jogar, escrever, fotografia e programar
+- 👀 Meus interesses são desenhar, jogar, escrever, fotografia e programar 
 - 🌱 Atualmente estou aprendendo a programar 
 - 💞️ Estou procurando colabor em tudo no geral seja projetos ou mais
 - 📫 pode mandar mensagem nesse email: "moimu7900@gmail.com"
